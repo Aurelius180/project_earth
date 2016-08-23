@@ -1,4 +1,4 @@
-# project_earth
+# Project Earth
 
 I forgot "Project Earth" was a series on _The Discovery Channel_ a while back. (No matter. Nowadays, that network is more concerned with being "Naked" while also "Afraid".)
 
